@@ -34,7 +34,7 @@
 
 ### 📫 Let's Connect
 
-- LinkedIn: https://www.linkedin.com/in/muskan-pandey-8790b1239/(#)
+- LinkedIn:https://www.linkedin.com/in/muskan-pandey07/(#)
 - Portfolio: [your-portfolio.com](#)
 - Email: pandeymuskan04@gmail.com
 
